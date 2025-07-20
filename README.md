@@ -1,1 +1,1 @@
-Epoch Resource Pack
+Epoch Pack | Modrinth
